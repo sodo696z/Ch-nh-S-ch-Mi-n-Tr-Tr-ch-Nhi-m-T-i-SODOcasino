@@ -30,4 +30,15 @@ Website: https://sodo696z.com
 Phone: 0909533333
 Email: contact@sodo696z.com
 #sodo #sodo_casino #số_đỏ_casino
+https://zenwriting.net/ha2sez1mfy
+https://sodo696z.bcz.com/2024/10/23/chinh-sach-mien-tru-trach-nhiem-tai-sodocasino/
+https://band.us/band/96481707/post/21
+https://www.diigo.com/item/note/b7g42/ydnt?k=9c953ef7615e570705ae5d6fdfeca404
+https://x.com/sodo696z8566/status/1849112403402997890
+https://www.notebook.ai/documents/1449602
+http://so697z.xim.tv/tin-tuc/chinh-sach-mien-tru-trach-nhiem-tai-sodocasino-new83606.html
+https://sites.google.com/view/sodo696z/home/20
+https://github.com/sodo696z/Ch-nh-S-ch-Mi-n-Tr-Tr-ch-Nhi-m-T-i-SODOcasino/blob/main/README.md
+https://sodo696z.blogspot.com/2024/10/chinh-sach-mien-tru-trach-nhiem-tai.html
+https://www.pinterest.com/pin/1051801688021580450
 
